@@ -1,0 +1,3 @@
+# SpotiDoti
+
+DONT SKID IT 
